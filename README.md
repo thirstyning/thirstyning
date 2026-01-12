@@ -1,1 +1,3 @@
-<p align="center"><img src=''https://files.catbox.moe/eip8bs.png'' width="500">
+<div id="header" align="center">  
+
+![image alt](https://files.catbox.moe/eip8bs.png)
