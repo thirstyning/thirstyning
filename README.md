@@ -8,4 +8,4 @@ DO NOT STOP TALKING ABOUT THE BRAZILIAN ELECTIONS
 <img src="https://github.com/user-attachments/assets/adf61d27-aec5-4128-9d47-aed2f27002dd" alt="alt text" width="300">
 
 
-[Carrd](https://moonlit-floor.carrd.co)ㅤㅤ✟ㅤㅤ[Listography](https://listography.com/juash)ㅤㅤ✟ㅤㅤ[Ata](https://hrtminji.atabook.org/)
+[Pronouns](https://en.pronouns.page/@thirstyning)ㅤㅤ✟ㅤㅤ[Carrd](https://moonlit-floor.carrd.co)ㅤㅤ✟ㅤㅤ[Listography](https://listography.com/juash)ㅤㅤ✟ㅤㅤ[Ata](https://hrtminji.atabook.org/)
